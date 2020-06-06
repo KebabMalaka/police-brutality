@@ -59,6 +59,13 @@ Photo shows large bruise the reporter got from a rubber bullet
 
 ## Los Angeles
 
+### Photographer posts image of aftermath of LAPD shooting homeless man in wheelchair in face | June 2
+
+Instagram photo of the aftermath whereby LAPD shoot non-lethal rounds into the face of unarmed homeless man in a wheelchair.
+
+**Links**
+* https://www.instagram.com/p/CBCiZXOlno4/
+ 
 ### LAPD drive by shootings at fleeing people announcing "This is an illegal assembly" | June 2
 
 The police are seen shooting at fleeing protestors and parked vehicles.
